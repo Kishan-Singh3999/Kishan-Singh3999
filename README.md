@@ -22,6 +22,6 @@
 ---
 
 ## 🌐 Connect With Me:
-- 📧 Email: *kishuthakur3999@gmail.com*  
+- 📧 Email: *kishuthakur3999@gmail.com*   
 - 💼 LinkedIn: [https://www.linkedin.com/in/kishu-thakur-80535a360/](#)  
   
